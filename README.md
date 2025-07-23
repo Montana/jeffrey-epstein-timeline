@@ -451,6 +451,10 @@ _The same JE can be seen on "Little Saint James" Island, this was the main house
 
 ### Offshore Holdings
 
+<br><img width="600" height="400" alt="image" src="https://github.com/user-attachments/assets/e7ee754d-158a-4f06-b2c9-57eee4772e23" /></br>
+
+_FBI raid Jeffrey Epstein's $70,000,000 Manhattan Townhouse._
+
 | Leak/File | Details | Source |
 |-----------|---------|---------|
 | **Paradise Papers** | Linked to Appleby law firm; described Epstein as "Manager of Fortune." | [Wikipedia](https://en.wikipedia.org/wiki/Jeffrey_Epstein) |
