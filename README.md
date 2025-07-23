@@ -139,6 +139,12 @@ This succession was changed quite a bit because of Jeffrey Epstein if he knew it
 | **John Brockman** | Literary agent; facilitated Epstein's connections to scientists through Edge dinners. | [BuzzFeed News](https://www.buzzfeednews.com/article/peteraldhous/jeffrey-epstein-science-donations-apologies-statements) |
 | **Nicole Junkermann** | German-born investor; flew on Epstein's plane 3 times including solo trips; co-director of Carbyne with Ehud Barak; appointed to UK NHS Healthtech Advisory Board. | [Unlimited Hangout](https://unlimitedhangout.com/2022/05/investigative-reports/the-epstein-associate-nobodys-talking-about-the-idf-linked-bond-girl-infiltrating-the-uk-nhs/) |
 
+Nicole Junkermann is seen in the flight logs more than once. 
+
+<img width="965" height="560" alt="image" src="https://github.com/user-attachments/assets/39a54cf3-8de6-45cf-801a-670324b61c1d" />
+
+Let's get to what Jeffrey Epstein called "Playing The Box."
+
 ### Financial Advising
 
 | Source | Details | Source |
