@@ -175,6 +175,10 @@ _JE on left side of the entrance to 9 East 71st Street, Manhattan, NYC to repres
 | **Paris Apartment** | 22 Avenue Foch; 7,965 sq ft luxury apartment; 8 bedrooms, gym, massage room; designed by Alberto Pinto; entertained Prince Andrew, Bill Gates; sold 2022 to Bulgarian businessman Georgi Tuchev. | Sold €10M (Listed €11.9M) | [Yahoo News](https://www.yahoo.com/news/jeffrey-epsteins-sumptuous-18-room-124709879.html) |
 | **Great St. James** | Second 165-acre island purchased 2016; planned complex with amphitheater and "underwater office." | ~$18 million (purchase price) | [Town & Country](https://www.townandcountrymag.com/society/money-and-power/a28397298/jeffrey-epstein-homes-real-estate-properties/) |
 
+<img width="1200" height="1600" alt="image" src="https://github.com/user-attachments/assets/fb3ca434-e032-4c14-b889-f64eac62b6b0" />
+
+_The same JE can be seen on "Little Saint James" Island, this was the main house where Jeffrey Epstein sleeped whilst on the island._
+
 ### Offshore Holdings
 
 | Leak/File | Details | Source |
