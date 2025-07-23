@@ -298,6 +298,8 @@ This succession was changed quite a bit because of Jeffrey Epstein if he knew it
 
 ### Technology & Business Leaders
 
+<br><img width="813" height="222" alt="Screenshot 2025-07-23 at 2 15 28 AM" src="https://github.com/user-attachments/assets/b7c86a6e-9f18-45e6-9856-61bc1e093a52" /></br>
+
 | Name | Details | Source |
 |------|---------|---------|
 | **Bill Gates** | Met with Epstein multiple times after 2008 conviction; expressed regret for association. | [NPR](https://www.npr.org/2024/01/03/1222130537/jeffrey-epstein-court-records-reveal-men-clinton-prince-andrew) |
