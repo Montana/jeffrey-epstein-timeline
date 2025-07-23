@@ -440,7 +440,7 @@ _JE on left side of the entrance to 9 East 71st Street, Manhattan, NYC to repres
 
 <img width="1200" height="1600" alt="image" src="https://github.com/user-attachments/assets/fb3ca434-e032-4c14-b889-f64eac62b6b0" />
 
-_The same JE can be seen on "Little Saint James" Island, this was the main house where Jeffrey Epstein slept whilst on the island._
+_The same JE can be seen on the left side of the northeast entrance of "Little Saint James" Island, this was the main house where Jeffrey Epstein slept whilst on the island._
 
 ### Transportation Network
 
