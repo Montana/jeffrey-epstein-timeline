@@ -43,7 +43,7 @@ Why it's unlikely:
 
 | Agency                                | Country        | Possible Link to Epstein                                                                           |
 | ------------------------------------- | -------------- | -------------------------------------------------------------------------------------------------- |
-| **CIA**                               | United States  | Connections to individuals with intelligence ties; speculation over financial operations.          |
+| **CIA**                               | United States  | Connections to individuals with intelligence ties; speculation over financial operations. She has identical twin sisters that work for the CIA who've made software that run on most CIA computers, (platforms).       |
 | **Mossad**                            | Israel         | Ghislaine Maxwell's father, Robert Maxwell, alleged to have Mossad links; funding circles overlap. |
 | **MI6**                               | United Kingdom | British elite and royal connections, notably Prince Andrew.                                        |
 | **FBI**                               | United States  | Investigated Epstein multiple times; some cooperation during plea deals.                           |
