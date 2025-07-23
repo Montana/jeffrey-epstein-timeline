@@ -65,6 +65,8 @@ In list order:
 
 ## Possible Intelligence Links 
 
+<br><img width="2300" height="1099" alt="classified-document-cover-sheets (1)" src="https://github.com/user-attachments/assets/cf1ab54b-e399-4197-aaac-0bca11ddb556" /></br>
+
 | Agency                                | Country        | Possible Link to Epstein                                                                           |
 | ------------------------------------- | -------------- | -------------------------------------------------------------------------------------------------- |
 | **CIA**                               | United States  | Connections to individuals with intelligence ties; speculation over financial operations. Ghislaine Maxwell has identical twin sisters that work for the CIA who've made software that run on most CIA computers, (platforms).       |
