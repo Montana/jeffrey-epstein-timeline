@@ -236,6 +236,11 @@ _President Trump and Jeffrey Epstein at a nightclub in New York, New York (NYC) 
 
 ### Celebrities & Public Figures
 
+<br><img width="1449" height="210" alt="Screenshot 2025-07-23 at 1 54 28 AM" src="https://github.com/user-attachments/assets/e28b02af-393e-4d7e-9c6f-d0ad343399e9" /></br>
+
+_Flight Logs_
+
+
 | Name | Details | Source |
 |------|---------|---------|
 | **Alan Dershowitz** | Denied allegations; countersued for defamation; helped negotiate Epstein's plea deal; introduced to Epstein by Lynn Forester de Rothschild. | [KSAT](https://www.ksat.com/news/politics/2020/01/24/2-lawyers-on-trump-defense-team-shared-epstein-as-a-client/) |
