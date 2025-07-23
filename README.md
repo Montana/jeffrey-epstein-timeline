@@ -150,6 +150,8 @@ _The PROMIS GUI_
 
 <img width="438" height="438" alt="Heading (19)" src="https://github.com/user-attachments/assets/d87a78ab-6eda-4ffe-bdbf-e84e692e6a76" />
 
+_It reads **Chiliad, Connecting All The Dots.**_
+
 | Agency | Database Access | Capability |
 |--------|----------------|-------------|
 | **FBI** | Investigative Data Warehouse (IDW) | Primary counterterrorism database |
