@@ -143,7 +143,7 @@ Nicole Junkermann is seen in the flight logs more than once.
 
 <img width="965" height="560" alt="image" src="https://github.com/user-attachments/assets/39a54cf3-8de6-45cf-801a-670324b61c1d" />
 
-Let's get to what Jeffrey Epstein called Playing The Box. "Playing The Box" was Jeffrey Epstein's term for what Steven Hoffenberg described as "the perfect execution of the grift." According to Hoffenberg, who worked with Epstein in the 1980s at Towers Financial, "playing the box" meant that Epstein ensured that even if his crime was uncovered, the victim would be unable to do anything about it, either because of social embarrassment or because the money was tucked away in a place where they couldn't either find it or get it.
+<br>Let's get to what Jeffrey Epstein called Playing The Box. "Playing The Box" was Jeffrey Epstein's term for what Steven Hoffenberg described as "the perfect execution of the grift." According to Hoffenberg, who worked with Epstein in the 1980s at Towers Financial, "playing the box" meant that Epstein ensured that even if his crime was uncovered, the victim would be unable to do anything about it, either because of social embarrassment or because the money was tucked away in a place where they couldn't either find it or get it.</br>
 
 ### Financial Advising
 
