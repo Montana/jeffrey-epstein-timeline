@@ -103,6 +103,13 @@ This network graph illustrates Epstein's expansive network, highlighting interco
 | **Leon Botstein** | Bard College president; had dozens of scheduled meetings with Epstein seeking philanthropic support. | [Times of Israel](https://www.timesofisrael.com/noam-chomsky-ehud-barak-among-names-on-jeffrey-epsteins-newly-uncovered-calendar/) |
 | **Lawrence Summers** | Former Harvard president and Treasury Secretary; met with Epstein 12+ times; sits on Genie Energy board. | [Climate and Capital Media](https://www.climateandcapitalmedia.com/esg-is-haunted-by-the-ghost-of-a-convicted-serial-pedophile/) |
 
+## How It's Affected The British Royal Family
+
+Below you can see with the falling out with Prince Andrew and Prince Harry what the new succession will be like: 
+
+<img width="973" height="1233" alt="Screenshot 2025-07-23 at 12 51 08 AM" src="https://github.com/user-attachments/assets/51397884-41aa-4ac0-be6a-a8230b83bba8" />
+
+
 ### Technology & Business Leaders
 
 | Name | Details | Source |
