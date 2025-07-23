@@ -9,7 +9,6 @@
 
 <br><img width="825" height="825" alt="image" src="https://github.com/user-attachments/assets/73b7ccf7-0be0-4cb0-8bb2-c3824aac4c8b" /></br>
 
-
 This report provides a comprehensive breakdown of Jeffrey Epstein's personal and financial networks, divided into two major areas:
 
 - **Epstein's Connections** (Political, Business, Academic, and Social)
@@ -56,7 +55,6 @@ Why it's unlikely:
 
 <br><img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/69716747-74f8-451b-90e1-f78785a5864d" /></br>
 
-
 ## Ghislaine Maxwell's Identical Twin Sisters 
 
 | Sister | Full Name | Born | Key Role | Intelligence Connection |
@@ -77,9 +75,6 @@ Why it's unlikely:
 ## Christine Maxwell - Intelligence Software Connections
 
 ### Chiliad Inc. - FBI Database Technology
-
-<br><img width="2295" height="1261" alt="Screenshot 2025-07-23 at 12 13 07 AM" src="https://github.com/user-attachments/assets/36a2916f-375d-4ea6-8de5-3656aaeb5ea8" /></br>
-
 
 | Aspect | Details |
 |--------|---------|
@@ -135,7 +130,6 @@ Why it's unlikely:
 
 <br><img width="488" height="368" alt="image" src="https://github.com/user-attachments/assets/ff2ba3d3-abe6-4b12-b9f5-c86dbe3b93ab" /></br>
 
-
 ## Timeline of Intelligence Software Development
 
 | Year | Event | Sister(s) Involved | Intelligence Significance |
@@ -180,7 +174,7 @@ _It reads **Chiliad, Connecting All The Dots.**_
 | **Backdoor Access** | Potential for unauthorized access to U.S. intelligence databases |
 | **Family Connections** | Ghislaine's Epstein operations during same period as sisters' intelligence contracts |
 
-<br><img width="1611" height="1110" alt="Screenshot 2025-07-23 at 1 49 56 AM" src="https://github.com/user-attachments/assets/df4a2c4e-92cf-464e-89e7-e24a44952969" /></br>
+<br><img width="1611" height="1110" alt="Screenshot 2025-07-23 at 1 49 56 AM" src="https://github.com/user-attachments/assets/df4a2c4e-92cf-464e-89e7-e24a44952969" /></br>
 
 ## Current Status
 
@@ -245,10 +239,9 @@ _President Trump and Jeffrey Epstein at a nightclub in New York, New York (NYC) 
 
 ### Celebrities & Public Figures
 
-<br><img width="1449" height="210" alt="Screenshot 2025-07-23 at 1 54 28 AM" src="https://github.com/user-attachments/assets/e28b02af-393e-4d7e-9c6f-d0ad343399e9" /></br>
+<br><img width="1449" height="210" alt="Screenshot 2025-07-23 at 1 54 28 AM" src="https://github.com/user-attachments/assets/e28b02af-393e-4d7e-9c6f-d0ad343399e9" /></br>
 
 _Flight Logs_
-
 
 | Name | Details | Source |
 |------|---------|---------|
@@ -268,9 +261,6 @@ _Flight Logs_
 | **Woody Allen** | Film director; met with Epstein multiple times according to calendar; attended lunches at townhouse. | [Times of Israel](https://www.timesofisrael.com/noam-chomsky-ehud-barak-among-names-on-jeffrey-epsteins-newly-uncovered-calendar/) |
 | **Bill Cosby** | Comedian; listed in Epstein's black book | [CNBC](https://www.cnbc.com/2019/07/22/jeffrey-epsteins-black-book-trump-clintons-prince-andrew.html) |
 | **Chris Tucker** | Actor/comedian; appeared on flight logs with Bill Clinton | [Epstein's Black Book](https://epsteinsblackbook.com/flights/13) |
-
-<img width="2295" height="1261" alt="Screenshot 2025-07-23 at 12 13 07 AM" src="https://github.com/user-attachments/assets/d348d319-dfca-4016-a560-7bfb44960b98" />
-
 
 ### Academic Institutions & Scientists
 
@@ -300,10 +290,9 @@ _Jeffrey Epstein with Alan Dershowitz at Harvard University_
 
 Below you can see with the falling out with Prince Andrew and Prince Harry what the new succession will be like: 
 
-<img width="973" height="1233" alt="Screenshot 2025-07-23 at 12 51 08 AM" src="https://github.com/user-attachments/assets/51397884-41aa-4ac0-be6a-a8230b83bba8" />
+<img width="973" height="1233" alt="Screenshot 2025-07-23 at 12 51 08 AM" src="https://github.com/user-attachments/assets/51397884-41aa-4ac0-be6a-a8230b83bba8" />
 
 This succession was changed quite a bit because of Jeffrey Epstein if he knew it or not. 
-
 
 ### Technology & Business Leaders
 
@@ -324,6 +313,8 @@ Nicole Junkermann is seen in the flight logs more than once.
 <img width="965" height="560" alt="image" src="https://github.com/user-attachments/assets/39a54cf3-8de6-45cf-801a-670324b61c1d" />
 
 <br>Let's get to what Jeffrey Epstein called Playing The Box. "Playing The Box" was Jeffrey Epstein's term for what Steven Hoffenberg described as "the perfect execution of the grift." According to Hoffenberg, who worked with Epstein in the 1980s at Towers Financial, "playing the box" meant that Epstein ensured that even if his crime was uncovered, the victim would be unable to do anything about it, either because of social embarrassment or because the money was tucked away in a place where they couldn't either find it or get it.</br>
+
+## Epstein's Financial Network
 
 ### Financial Advising
 
@@ -357,7 +348,7 @@ _JE on left side of the entrance to 9 East 71st Street, Manhattan, NYC to repres
 
 <img width="1200" height="1600" alt="image" src="https://github.com/user-attachments/assets/fb3ca434-e032-4c14-b889-f64eac62b6b0" />
 
-_The same JE can be seen on "Little Saint James" Island, this was the main house where Jeffrey Epstein sleeped whilst on the island._
+_The same JE can be seen on "Little Saint James" Island, this was the main house where Jeffrey Epstein slept whilst on the island._
 
 ### Offshore Holdings
 
@@ -418,10 +409,9 @@ _The same JE can be seen on "Little Saint James" Island, this was the main house
 - **Trump-Era Documents:** Declassification of Epstein-linked documents remains partial, fueling speculation. [NYT](https://www.nytimes.com/2025/07/07/us/politics/trump-administration-jeffrey-epstein-client-list-suicide.html)
 - **Trafficking Allegations:** Ongoing lawsuits in the USVI allege Epstein operated a pyramid scheme involving minors. [Finance Monthly](https://www.finance-monthly.com/2025/02/how-did-jeffrey-epstein-make-his-money/)
 
-<img width="1099" height="1378" alt="Screenshot 2025-07-23 at 1 21 38 AM" src="https://github.com/user-attachments/assets/01e36759-9b84-4f3f-932f-423a2c58f1fa" />
+<img width="1099" height="1378" alt="Screenshot 2025-07-23 at 1 21 38 AM" src="https://github.com/user-attachments/assets/01e36759-9b84-4f3f-932f-423a2c58f1fa" />
 
 _Four page order brought to Ghislaine Maxwell by the DOJ filed on July 22nd, 2025. She has until August 5th, 2025 to respond._
-
 
 ---
 
