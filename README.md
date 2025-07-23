@@ -115,6 +115,8 @@ Why it's unlikely:
 
 ## The PROMIS Software Legacy
 
+<img width="350" height="306" alt="image" src="https://github.com/user-attachments/assets/46a6d677-14a6-4a03-8699-15d2045e4754" />
+
 | Aspect | Connection |
 |--------|------------|
 | **Father's Role** | Robert Maxwell involved in sale of bugged PROMIS software to U.S. national laboratories |
