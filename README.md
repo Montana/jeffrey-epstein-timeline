@@ -159,6 +159,7 @@ This succession was changed quite a bit because of Jeffrey Epstein if he knew it
 
 <img width="737" height="1023" alt="image" src="https://github.com/user-attachments/assets/df3f52e6-371e-46c9-943e-b7c8f57fed8c" />
 
+_JE on left side of the entrance to 9 East 71st Street, Manhattan, NYC to represent "Jeffrey Epstein". In particular this was in Lenox Hill._
 
 | Property | Details | Estimated Value | Source |
 |----------|---------|-----------------|---------|
