@@ -369,6 +369,8 @@ _Photo of Nicole Junkermann_
 
 ## "Playing The Box" - Epstein's Control System
 
+<br><img width="500" height="500" alt="Heading (21)" src="https://github.com/user-attachments/assets/85965de8-87b1-46e3-a200-069f7b62e14e" /></br>
+
 ### The Concept
 "Playing The Box" represented Epstein's systematic approach to ensuring victims' silence and compliance through multiple layers of control:
 
