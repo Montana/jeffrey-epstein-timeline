@@ -148,6 +148,8 @@ _The PROMIS GUI_
 
 ### Chiliad's Intelligence Network Access
 
+<img width="438" height="438" alt="Heading (19)" src="https://github.com/user-attachments/assets/d87a78ab-6eda-4ffe-bdbf-e84e692e6a76" />
+
 | Agency | Database Access | Capability |
 |--------|----------------|-------------|
 | **FBI** | Investigative Data Warehouse (IDW) | Primary counterterrorism database |
