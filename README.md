@@ -12,6 +12,19 @@ This report provides a comprehensive breakdown of Jeffrey Epstein's personal and
 - **Epstein's Connections** (Political, Business, Academic, and Social)
 - **Financial Activities** (Advisory, Investments, Real Estate, Offshore Accounts)
 
+## My Core Theory 
+
+Epstein was primarily a financial front/money manager for ultra-wealthy clients, particularly Leslie Wexner, rather than generating wealth through his own investment genius.
+
+### Evidence
+
+* Wexner gave Epstein power of attorney in 1991 and essentially gifted him a $77 million Manhattan mansion
+* Leon Black paid him $50-75 million for "tax advice" between 2012-2017
+* Epstein claimed to only take clients with $1 billion+ net worth, but no legitimate billionaire clients were ever identified beyond Wexner
+* His hedge fund had no verified external investors or documented investment strategy
+
+How it worked: Epstein likely managed Wexner's money and possibly other wealthy individuals' funds, taking substantial fees and gaining access to insider information. The "billionaire lifestyle" was funded by management fees rather than personal investment returns.
+
 ## Possible Intelligence Links 
 
 | Agency                                | Country        | Possible Link to Epstein                                                                           |
