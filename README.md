@@ -115,7 +115,7 @@ Why it's unlikely:
 
 ## The PROMIS Software Legacy
 
-<img width="350" height="306" alt="image" src="https://github.com/user-attachments/assets/46a6d677-14a6-4a03-8699-15d2045e4754" />
+<img width="500" height="500" alt="Heading (18)" src="https://github.com/user-attachments/assets/303fd015-a4dc-455f-b52f-b1d8ce6168db" />
 
 | Aspect | Connection |
 |--------|------------|
