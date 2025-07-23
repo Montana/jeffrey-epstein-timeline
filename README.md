@@ -23,7 +23,7 @@ Epstein was primarily a financial front/money manager for ultra-wealthy clients,
 * Epstein claimed to only take clients with $1 billion+ net worth, but no legitimate billionaire clients were ever identified beyond Wexner
 * His hedge fund had no verified external investors or documented investment strategy
 
-How it worked: Epstein likely managed Wexner's money and possibly other wealthy individuals' funds, taking substantial fees and gaining access to insider information. The "billionaire lifestyle" was funded by management fees rather than personal investment returns.
+**How it worked**: Epstein likely managed Wexner's money and possibly other wealthy individuals' funds, taking substantial fees and gaining access to insider information. The "billionaire lifestyle" was funded by management fees rather than personal investment returns.
 
 ## Possible Intelligence Links 
 
