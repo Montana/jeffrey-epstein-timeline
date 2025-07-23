@@ -122,7 +122,7 @@ Why it's unlikely:
 | **PROMIS Evolution** | Chiliad and other ventures seen as successors to PROMIS scandal |
 | **Intelligence Front** | Companies served as fronts for ongoing intelligence operations |
 
-<img width="488" height="368" alt="image" src="https://github.com/user-attachments/assets/ff2ba3d3-abe6-4b12-b9f5-c86dbe3b93ab" />
+<br><img width="488" height="368" alt="image" src="https://github.com/user-attachments/assets/ff2ba3d3-abe6-4b12-b9f5-c86dbe3b93ab" /></br>
 
 
 ## Timeline of Intelligence Software Development
