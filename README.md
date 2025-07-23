@@ -267,6 +267,11 @@ _The same JE can be seen on "Little Saint James" Island, this was the main house
 - **Trump-Era Documents:** Declassification of Epstein-linked documents remains partial, fueling speculation. [NYT](https://www.nytimes.com/2025/07/07/us/politics/trump-administration-jeffrey-epstein-client-list-suicide.html)
 - **Trafficking Allegations:** Ongoing lawsuits in the USVI allege Epstein operated a pyramid scheme involving minors. [Finance Monthly](https://www.finance-monthly.com/2025/02/how-did-jeffrey-epstein-make-his-money/)
 
+<img width="1099" height="1378" alt="Screenshot 2025-07-23 at 1 21 38 AM" src="https://github.com/user-attachments/assets/01e36759-9b84-4f3f-932f-423a2c58f1fa" />
+
+_Four page order brought to Ghislaine Maxwell by the DOJ filed on July 22nd, 2025. She has until August 5th, 2025 to respond._
+
+
 ---
 
 *This document is intended as a research summary and should not be interpreted as an allegation or assertion of guilt beyond confirmed legal outcomes.*
