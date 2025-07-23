@@ -160,6 +160,9 @@ _It reads **Chiliad, Connecting All The Dots.**_
 | **DOJ** | Connected databases | Justice Department data access |
 | **DHS** | ISSE Guard pilot system | Homeland Security integration |
 
+<br><img width="960" height="720" alt="image" src="https://github.com/user-attachments/assets/b7df9268-31f4-404d-b7c6-03701ca8efce" /></br>
+
+
 ## Security Concerns & Questions
 
 | Concern | Details |
