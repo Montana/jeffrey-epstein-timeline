@@ -451,7 +451,7 @@ _The same JE can be seen on "Little Saint James" Island, this was the main house
 
 ### Offshore Holdings
 
-<br><img width="600" height="400" alt="image" src="https://github.com/user-attachments/assets/e7ee754d-158a-4f06-b2c9-57eee4772e23" /></br>
+<br><img width="1600" height="900" alt="image" src="https://github.com/user-attachments/assets/848c7934-0f38-4244-bf8a-cf756a387767" /></br>
 
 _FBI raid Jeffrey Epstein's $70,000,000 Manhattan Townhouse._
 
