@@ -18,6 +18,8 @@ Epstein was primarily a financial front/money manager for ultra-wealthy clients,
 
 ### Evidence
 
+Why it's likely: 
+
 * Wexner gave Epstein power of attorney in 1991 and essentially gifted him a $77 million Manhattan mansion
 * Leon Black paid him $50-75 million for "tax advice" between 2012-2017
 * Epstein claimed to only take clients with $1 billion+ net worth, but no legitimate billionaire clients were ever identified beyond Wexner
