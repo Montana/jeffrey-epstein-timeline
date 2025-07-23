@@ -109,6 +109,8 @@ Below you can see with the falling out with Prince Andrew and Prince Harry what 
 
 <img width="973" height="1233" alt="Screenshot 2025-07-23 at 12 51 08 AM" src="https://github.com/user-attachments/assets/51397884-41aa-4ac0-be6a-a8230b83bba8" />
 
+This succession was changed quite a bit because of Jeffrey Epstein if he knew it or not. 
+
 
 ### Technology & Business Leaders
 
