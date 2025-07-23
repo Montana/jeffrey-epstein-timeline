@@ -462,6 +462,10 @@ _FBI raid Jeffrey Epstein's $70,000,000 Manhattan Townhouse._
 
 ### Shell Companies and Entities
 
+<br><img width="962" height="722" alt="image" src="https://github.com/user-attachments/assets/d44b9461-9de6-401f-a4ce-fa897bbd5dc4" /></br>
+
+_The aftermath of the FBI raid_ 
+
 | Entity | Jurisdiction | Purpose |
 |--------|-------------|---------|
 | **Southern Trust Company** | US Virgin Islands | Real estate holding |
