@@ -12,7 +12,7 @@ This report provides a comprehensive breakdown of Jeffrey Epstein's personal and
 - **Epstein's Connections** (Political, Business, Academic, and Social)
 - **Financial Activities** (Advisory, Investments, Real Estate, Offshore Accounts)
 
-## My Core Theory 
+## My Core Theory (Most Likely)
 
 Epstein was primarily a financial front/money manager for ultra-wealthy clients, particularly Leslie Wexner, rather than generating wealth through his own investment genius.
 
@@ -24,6 +24,18 @@ Epstein was primarily a financial front/money manager for ultra-wealthy clients,
 * His hedge fund had no verified external investors or documented investment strategy
 
 **How it worked**: Epstein likely managed Wexner's money and possibly other wealthy individuals' funds, taking substantial fees and gaining access to insider information. The "billionaire lifestyle" was funded by management fees rather than personal investment returns.
+
+## My Core Theory (Least Likely)
+
+### Legitimate Investment Genius
+
+Why it's unlikely:
+
+* No documented investment track record or strategy
+* No verified external investors beyond Wexner
+* Refused to provide financial records to investigators
+* Bear Stearns colleagues described his departure as occurring under "ignominious circumstances"
+* Mathematics teacher background with no formal finance training
 
 ## Possible Intelligence Links 
 
