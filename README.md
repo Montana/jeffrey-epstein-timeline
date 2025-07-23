@@ -265,6 +265,10 @@ _Flight Logs_
 
 ### Academic Institutions & Scientists
 
+<img width="2500" height="1786" alt="image" src="https://github.com/user-attachments/assets/c508be29-84c4-471d-ba2d-a3e32d2eb526" />
+
+_Jeffrey Epstein with Alan Dershowitz at Harvard University_ 
+
 | Institution/Name | Connection Details | Source |
 |-------------|-------------------|---------|
 | **MIT** | Accepted $850,000 in donations; officials resigned after backlash; Media Lab director Joi Ito resigned. | [MIT Technology Review](https://www.technologyreview.com/2020/01/10/130928/mit-jeffrey-epstein-donations-media-lab-joi-ito-seth-lloyd-funding-ethics/) |
@@ -370,6 +374,8 @@ _The same JE can be seen on "Little Saint James" Island, this was the main house
 ## Estimated Net Worth of Key Figures
 
 *Note: Net worth estimates are based on public records, financial filings, and media reports. Figures are approximate and may not reflect current values or hidden assets.*
+
+<br><img width="1024" height="768" alt="image" src="https://github.com/user-attachments/assets/4c5bab8e-1c61-4410-bb8b-a0d2d942e639" /></br>
 
 | Name | Estimated Net Worth | Source/Notes |
 |------|-------------------|--------------|
