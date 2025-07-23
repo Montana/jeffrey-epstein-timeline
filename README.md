@@ -233,7 +233,7 @@ This network graph illustrates Epstein's expansive network, highlighting interco
 | **Douglas Leese** | British Arms Dealer | 1980s | Mentored in offshore money movement; intelligence connections |
 | **Adnan Khashoggi** | Saudi Arms Dealer | 1980s-1990s | International finance and arms dealing networks |
 
-## Epstein's Key Connections
+## Epstein's Key Connections Throughout The 80's-90's 
 
 ### Political Figures
 
