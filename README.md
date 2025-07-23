@@ -462,7 +462,8 @@ _FBI raid Jeffrey Epstein's $70,000,000 Manhattan Townhouse._
 
 ### Shell Companies and Entities
 
-<br><img width="962" height="722" alt="image" src="https://github.com/user-attachments/assets/d44b9461-9de6-401f-a4ce-fa897bbd5dc4" /></br>
+<br><img width="856" height="625" alt="Screenshot 2025-07-23 at 2 55 29 AM" src="https://github.com/user-attachments/assets/b82abaaf-6172-4f88-b00b-6d97622895d7" /></br>
+
 
 _The aftermath of the FBI raid_ 
 
