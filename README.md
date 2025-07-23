@@ -43,6 +43,10 @@ Why it's unlikely:
 
 ## Key Timeline Events
 
+<br><img width="1024" height="1024" alt="aca8c132-64cb-444f-a1dd-112b14fa7485" src="https://github.com/user-attachments/assets/ddc5816e-b799-4558-ae65-671fbec30d4f" /></br>
+
+In list order:
+
 | Year | Event | Significance |
 |------|-------|-------------|
 | **1953** | Born in Brooklyn, NY | Working-class Jewish family background |
