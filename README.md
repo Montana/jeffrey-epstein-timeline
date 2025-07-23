@@ -382,6 +382,8 @@ _Photo of Nicole Junkermann_
 | **Legal Intimidation** | High-powered legal teams | Dershowitz, Starr, other top attorneys |
 | **Social Networks** | Isolation from support systems | Targeting vulnerable individuals |
 
+<br><img width="500" height="500" alt="Heading (22)" src="https://github.com/user-attachments/assets/e9330083-ed63-45af-939d-8c966f5597f2" /></br>
+
 ### Key Locations for "The Box"
 
 | Property | "Box" Function | Control Mechanisms |
