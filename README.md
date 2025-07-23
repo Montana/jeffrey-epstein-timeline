@@ -143,7 +143,6 @@ Why it's unlikely:
 
 _The PROMIS GUI_ 
 
-
 ## Cross-Agency Database Access
 
 ### Chiliad's Intelligence Network Access
@@ -162,7 +161,6 @@ _It reads **Chiliad, Connecting All The Dots.**_
 
 <br><img width="960" height="720" alt="image" src="https://github.com/user-attachments/assets/b7df9268-31f4-404d-b7c6-03701ca8efce" /></br>
 
-
 ## Security Concerns & Questions
 
 | Concern | Details |
@@ -172,6 +170,8 @@ _It reads **Chiliad, Connecting All The Dots.**_
 | **Data Extraction** | What information was potentially taken from databases over time |
 | **Backdoor Access** | Potential for unauthorized access to U.S. intelligence databases |
 | **Family Connections** | Ghislaine's Epstein operations during same period as sisters' intelligence contracts |
+
+<br><img width="960" height="720" alt="image" src="https://github.com/user-attachments/assets/ac1d018c-dc0f-4be9-aa01-5884d334964b" /></br>
 
 ## Current Status
 
