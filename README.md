@@ -171,7 +171,7 @@ _It reads **Chiliad, Connecting All The Dots.**_
 | **Backdoor Access** | Potential for unauthorized access to U.S. intelligence databases |
 | **Family Connections** | Ghislaine's Epstein operations during same period as sisters' intelligence contracts |
 
-<br><img width="960" height="720" alt="image" src="https://github.com/user-attachments/assets/ac1d018c-dc0f-4be9-aa01-5884d334964b" /></br>
+<br><img width="1611" height="1110" alt="Screenshot 2025-07-23 at 1 49 56 AM" src="https://github.com/user-attachments/assets/df4a2c4e-92cf-464e-89e7-e24a44952969" /></br>
 
 ## Current Status
 
