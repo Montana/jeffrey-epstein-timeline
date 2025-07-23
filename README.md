@@ -122,6 +122,9 @@ Why it's unlikely:
 | **PROMIS Evolution** | Chiliad and other ventures seen as successors to PROMIS scandal |
 | **Intelligence Front** | Companies served as fronts for ongoing intelligence operations |
 
+<img width="488" height="368" alt="image" src="https://github.com/user-attachments/assets/ff2ba3d3-abe6-4b12-b9f5-c86dbe3b93ab" />
+
+
 ## Timeline of Intelligence Software Development
 
 | Year | Event | Sister(s) Involved | Intelligence Significance |
@@ -133,6 +136,11 @@ Why it's unlikely:
 | **2001** | Post-9/11 expansion | Christine | Chiliad breakthrough in government contracting |
 | **2008** | Epstein legal troubles begin | Both | Timing coincides with increased government contracts |
 | **2013** | Christine becomes Chiliad CEO | Christine | Full control of FBI database access technology |
+
+<img width="676" height="570" alt="image" src="https://github.com/user-attachments/assets/1400435c-6ee6-4f85-ae67-aacc4f25ab81" />
+
+_The PROMIS GUI_ 
+
 
 ## Cross-Agency Database Access
 
