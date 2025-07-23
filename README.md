@@ -1,4 +1,5 @@
 # The Jeffrey Epstein Timeline - By Michael Mendy 
+<img width="813" height="813" alt="Heading (17)" src="https://github.com/user-attachments/assets/42dc74cb-a8e8-4855-affa-76ed756bbd76" />
 
 *Compiled July 23, 2025 - Based on court documents, media reports, and institutional investigations by Michael Mendy.*
 
