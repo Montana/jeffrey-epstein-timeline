@@ -157,6 +157,9 @@ This succession was changed quite a bit because of Jeffrey Epstein if he knew it
 
 ### Real Estate
 
+<img width="737" height="1023" alt="image" src="https://github.com/user-attachments/assets/df3f52e6-371e-46c9-943e-b7c8f57fed8c" />
+
+
 | Property | Details | Estimated Value | Source |
 |----------|---------|-----------------|---------|
 | **NYC Townhouse** | 9 East 71st Street, Manhattan; 7-story, 51,000 sq ft mansion (Herbert N. Straus House); 40 rooms, 15 bathrooms; gifted by Wexner ~1996; sold 2021 to Michael Daffey for $51M. | Listed $88M, Sold $51M | [Wikipedia](https://en.wikipedia.org/wiki/Herbert_N._Straus_House) |
