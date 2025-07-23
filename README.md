@@ -83,7 +83,7 @@ This network graph illustrates Epstein's expansive network, highlighting interco
 
 <img width="2115" height="1208" alt="epstein_trump_nightclub" src="https://github.com/user-attachments/assets/ca52e962-72a0-4c5f-84ab-7400d4d18614" />
 
-_President Trump and Jeffrey Epstein at a nightclub in New York, New York (NYC) in Feb 1999.
+_President Trump and Jeffrey Epstein at a nightclub in New York, New York (NYC) in Feb 1999._
 
 ### Business Associates
 
