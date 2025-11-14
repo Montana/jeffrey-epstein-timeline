@@ -567,7 +567,7 @@ _The aftermath of the FBI raid._
 | 2015 | Jun 11    | Around the World Is Not a Trip                   |
 | 2015 | Jun 12    | Room At the Topless                              |
 | 2015 | Jun 12    | Dr. Nyet: The Man From O.R.G.Y. Again            |
-| 2015 | Jun–Jul   | Money: The Unauthorized Biography                 |
+| 2015 | Jun–Jul   | Money: The Unauthorized Biography                |
 | 2015 | Jun–Jul   | The Complete Book of Pilates for Men             |
 | 2015 | Sep 9     | The Rosie Project                                |
 | 2015 | Oct 14    | The Physics of Immortality                       |
@@ -578,6 +578,11 @@ _The aftermath of the FBI raid._
 <img width="1349" height="321" alt="Screenshot 2025-11-14 at 9 55 34 AM" src="https://github.com/user-attachments/assets/becf1049-6075-4d2c-a529-a30ea7ff7d34" />
 
 These books mostly fall into a few clear themes: a large cluster focused on sexuality, tantric practices, and erotic or occult-leaning material; another sizable group centered on science, math, cosmology, and high-status intellectual topics; several titles about wealth, power, elite families, and how billionaires operate; and a smaller set dealing with spirituality, religion, and esoteric self-help. Mixed in are a few pieces of general fiction and humor
+
+<img width="603" height="641" alt="Screenshot 2025-11-14 at 9 59 35 AM" src="https://github.com/user-attachments/assets/2803c0fd-435f-4ebe-a4cc-d8c4d7e0c746" />
+
+_Excel sheet I made listing the books out_ 
+
 
 ## Ongoing Investigations & Context
 
