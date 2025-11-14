@@ -541,6 +541,44 @@ _The aftermath of the FBI raid._
 | **Bill Clinton** | $120M | Presidential pension, speaking fees, book deals |
 | **Donald Trump** | $2.6B | Forbes 2024; real estate, Truth Social |
 
+## Books Jeffrey Epstein Ordered Off Amazon Over The Years
+
+| Year | Date      | Title                                           |
+|------|-----------|--------------------------------------------------|
+| 2007 | September | Conversations with a Mathematician               |
+| 2007 | September | Exploring Randomness                             |
+| 2007 | Oct–Dec   | Passion: An Essay on Personality                 |
+| 2007 | Oct–Dec   | Time and Chance                                  |
+| 2007 | Oct–Dec   | Seven Pillars of Wisdom                          |
+| 2007 | Oct–Dec   | The End of Suffering                             |
+| 2007 | Oct–Dec   | Miracles of Mind                                 |
+| 2007 | Oct–Dec   | The Jesus Dynasty                                |
+| 2007 | Oct–Dec   | Chakra And Kundalini Workbook                    |
+| 2007 | Dec 24    | Secrets of Western Tantra                        |
+| 2007 | Dec 24    | Modern Sex Magick                                |
+| 2007 | Dec 24    | Ecstasy Through Tantra                           |
+| 2013 | Oct–Nov   | Baron Edmond Rothschild                          |
+| 2013 | Oct–Nov   | Family Wealth Management                         |
+| 2014 | Apr 24    | Flashman                                         |
+| 2014 | Apr 24    | Flash for Freedom!                               |
+| 2014 | Apr 24    | The Tight End                                    |
+| 2014 | Apr 30    | The Man from O.R.G.Y.                            |
+| 2015 | Jun 11    | The Man From O.R.G.Y. Thy Neighbor’s Orgy        |
+| 2015 | Jun 11    | Around the World Is Not a Trip                   |
+| 2015 | Jun 12    | Room At the Topless                              |
+| 2015 | Jun 12    | Dr. Nyet: The Man From O.R.G.Y. Again            |
+| 2015 | Jun–Jul   | Money: The Unauthorized Biography                 |
+| 2015 | Jun–Jul   | The Complete Book of Pilates for Men             |
+| 2015 | Sep 9     | The Rosie Project                                |
+| 2015 | Oct 14    | The Physics of Immortality                       |
+| 2015 | Oct 17    | The Celebrity Assistant’s Handbook               |
+| 2015 | Dec       | Genes, Girls, and Gamow                          |
+| 2015 | Dec       | Avoid Boring People                              |
+
+<img width="1349" height="321" alt="Screenshot 2025-11-14 at 9 55 34 AM" src="https://github.com/user-attachments/assets/becf1049-6075-4d2c-a529-a30ea7ff7d34" />
+
+These books mostly fall into a few clear themes: a large cluster focused on sexuality, tantric practices, and erotic or occult-leaning material; another sizable group centered on science, math, cosmology, and high-status intellectual topics; several titles about wealth, power, elite families, and how billionaires operate; and a smaller set dealing with spirituality, religion, and esoteric self-help. Mixed in are a few pieces of general fiction and humor
+
 ## Ongoing Investigations & Context
 
 - **Senate Finance Probe:** Senator Ron Wyden referenced $1.5B in hidden Treasury transactions involving Epstein. [Finance Monthly](https://www.finance-monthly.com/2025/02/what-happened-to-jeffrey-epsteins-money/)
