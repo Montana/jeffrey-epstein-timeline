@@ -587,7 +587,7 @@ _Excel sheet I made listing the books out_
 
 Eric Weinstein has said that in the early 2000s he was invited to visit Jeffrey Epstein in New York. The meeting was arranged through professional channels, and Weinstein accepted because he believed he was going to meet a wealthy financier interested in scientific or intellectual matters.
 
-## Arrival at the Townhouse
+## Arrival At The Townhouse
 
 Weinstein recalls arriving at Epstein’s Manhattan townhouse and immediately feeling that something in the atmosphere was “off.” He describes the environment as staged, curated, and strangely theatrical — not like a genuine intellectual meeting, but as if he had stepped onto a set.
 
@@ -600,27 +600,27 @@ Weinstein has said that one of the most striking elements in the room was a very
 During the meeting, Weinstein tried to engage Epstein in technical, scientific, or financial topics. He quickly concluded that Epstein did not speak like a real financier and did not appear to have the depth expected of someone managing billions.
 Weinstein later summarized the encounter this way:
 
-_Epstein did not seem authentic._
+>Epstein did not seem authentic.
 
 He appeared to be performing intelligence rather than demonstrating it. He had the surface polish of a wealthy intellectual but not the substance. This led Weinstein to describe Epstein as a “construct” — someone whose public persona had been assembled, not earned. He would later say: “He certainly was not a financier in any standard sense. That was a cover story.”
 
 Weinstein has suggested that Epstein’s identity may have been manufactured, perhaps as part of an intelligence apparatus or for purposes not publicly understood.
 
-## Leaving the Meeting
+## Leaving The Meeting
 
 Weinstein says that when the meeting ended, he was deeply rattled. He recalls walking out the door and immediately calling his wife to tell her what had happened. He said he felt the encounter was wrong on multiple levels, and he needed to tell someone close to him right away — both to document the experience and to process the unease.
 
-## Aftermath and Reflection
+## Aftermath And Reflection
 
 Years later, Weinstein became increasingly vocal about how suspicious the entire encounter felt. When Epstein was arrested and his background came under renewed scrutiny, Weinstein said the experience made more sense in hindsight: the artificial persona, the theatrical environment, the shallow intellectual posing, the sense of orchestration.
 
-## Weinstein concluded:
+## Weinstein Concluded:
 
 - Epstein was not a self-made financial genius.
 
 - Epstein was not an organic figure in elite intellectual circles.
 
-- Epstein was built — a façade, a front, or an asset.
+- Epstein was built a façade, a front, or an asset.
 
 - This is why Weinstein repeatedly calls Epstein a “faux intellect” and emphasizes the “construct” nature of his persona.
 
